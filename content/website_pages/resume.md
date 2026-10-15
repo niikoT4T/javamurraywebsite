@@ -47,7 +47,7 @@ Current student (Grade 12)
 ___
 
 * Project management (aquaponics, sound lead)
-* Open to feedback, allways looking to imporve my self
+* Open to feedback, always looking to improve my self
 * adaptability 
 * being intitaive.
 </div>
